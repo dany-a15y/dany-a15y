@@ -1,0 +1,7 @@
+- 👋 danyelle 15 
+- 👀 gosto de jogar vÔlei
+- 🌱 funck pagode 
+- 💞️ 
+- 📫 
+- 😄 
+- ⚡
